@@ -1,2 +1,0 @@
-# JuuMiju
-avv keren 
